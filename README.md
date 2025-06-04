@@ -1,9 +1,6 @@
 ## INTRODUCTION
 
-![blinkiesCafe-Sg](https://github.com/user-attachments/assets/115d5443-8a71-4a90-9bab-c5737d8c2037)
-
-![breadhead-cute](https://github.com/user-attachments/assets/45af490b-0d6f-472c-ad66-8b9feaeb04ca)
-
+![0d10ba35](https://github.com/user-attachments/assets/569a3543-643f-4828-89c8-11f497f5f26b)
 
 ♬- 𝙷𝙴𝚈𝙾𝙾𝙾!!! 𝚈𝙾𝚄 𝙲𝙰𝙽 𝙲𝙰𝙻𝙻 𝙼𝙴 𝙰𝙶𝙴𝙽𝚃 𝙿𝙸𝙽𝙺 𝙾𝚁 𝙴𝙻𝚆𝙾𝙾𝙳, I LIKE TO DRAW AND MAKE CHARACTER DESIGNS!!
 
@@ -11,10 +8,10 @@
 
 R𝙴𝙰𝙳 𝙼𝚈 𝐂𝐀𝐀𝐑𝐃 𝙵𝙾𝚁 𝙼𝙾𝚁𝙴 𝙸𝙽𝙵𝙾 (..◜ᴗ◝..)
 
-
 (https://papyrusss.carrd.co/)
 
-![blinkiesCafe-vY](https://github.com/user-attachments/assets/a73dd1ab-a38b-4fc8-9b88-c8a933a2ba79)
+![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
+
 
 𝙽𝙾𝚃𝙴𝚂:
 
@@ -42,7 +39,7 @@ R𝙴𝙰𝙳 𝙼𝚈 𝐂𝐀𝐀𝐑𝐃 𝙵𝙾𝚁 𝙼𝙾𝚁𝙴 𝙸�
 
 ♬-𝙼𝚊𝚍𝚗𝚎𝚜𝚜 𝚌𝚘𝚖𝚋𝚊𝚝
 
-![breadhead-bread-head](https://github.com/user-attachments/assets/96aae969-3c29-404d-9495-6cee43429d0b)
+![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
 
-![blinkiesCafe-Yc](https://github.com/user-attachments/assets/3ed79208-4e90-41a2-976e-4983d8471929)
+![bouncing-dancing](https://github.com/user-attachments/assets/f70f4166-b649-4cf2-a110-e5f4fdce6f1b)
 
