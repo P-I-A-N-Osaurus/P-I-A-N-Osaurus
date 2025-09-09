@@ -15,6 +15,8 @@ R𝙴𝙰𝙳 𝙼𝚈 𝐑𝐄𝐍𝐓𝐑𝐘 𝐀𝐍𝐃 𝐂𝐀𝐀𝐑�
 ₊˚ˑ༄ ( -𝚖𝚘𝚋𝚒𝚕𝚎 𝚟𝚎𝚛𝚜𝚒𝚘𝚗) 
 ![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&cover_image=false&theme=novatorem&show_offline=false&background_color=801132&interchange=true&bar_color=ffb5b5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&redirect=true)
+
 𝙽𝙾𝚃𝙴𝚂:
 
 𝙵𝚊𝚗𝚍𝚘𝚖𝚜 𝚝𝚑𝚊𝚝 𝙸 𝚊𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚘𝚋𝚜𝚜𝚎𝚜𝚜𝚒𝚗𝚐:
