@@ -17,37 +17,6 @@ R𝙴𝙰𝙳 𝙼𝚈 𝐑𝐄𝐍𝐓𝐑𝐘 𝐀𝐍𝐃 𝐂𝐀𝐀𝐑�
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&cover_image=false&theme=novatorem&show_offline=false&background_color=801132&interchange=true&bar_color=ffb5b5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&redirect=true)
 
-𝙽𝙾𝚃𝙴𝚂:
-
-𝙵𝚊𝚗𝚍𝚘𝚖𝚜 𝚝𝚑𝚊𝚝 𝙸 𝚊𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚘𝚋𝚜𝚜𝚎𝚜𝚜𝚒𝚗𝚐:
-
-☆-𝙶𝚊𝚜𝚕𝚒𝚐𝚑𝚝 𝙳𝚒𝚜𝚝𝚛𝚒𝚌𝚝
-
-♬-𝙼𝚘𝚗𝚔𝚎𝚢 𝚠𝚛𝚎𝚗𝚌𝚑
-
-☆-𝙻𝚎𝚐𝚘 𝚖𝚘𝚗𝚔𝚒𝚎 𝚔𝚒𝚍
-
-♬-𝚂𝚕𝚎𝚗𝚍𝚢𝚝𝚞𝚋𝚋𝚒𝚎𝚜
-
-☆-𝙴𝚙𝚒𝚌 𝚝𝚑𝚎 𝚖𝚞𝚜𝚒𝚌𝚊𝚕
-
-♬-𝚂𝚙𝚘𝚘𝚔𝚢'𝚜 𝚓𝚞𝚖𝚙𝚜𝚌𝚊𝚛𝚎 𝚖𝚊𝚗𝚜𝚒𝚘𝚗
-
-☆-𝙾𝚌𝚝𝚊𝚞𝚗𝚊𝚝𝚜
-
-♬-𝙿𝚒𝚐𝚐𝚢
-
-☆-𝙻𝚊𝚌𝚔𝚊𝚍𝚊𝚒𝚜𝚢
-
-♬-𝙼𝚊𝚍𝚗𝚎𝚜𝚜 𝚌𝚘𝚖𝚋𝚊𝚝
-
-☆-𝚃𝚎𝚊𝚖 𝚏𝚘𝚛𝚝𝚛𝚎𝚜𝚜 𝟸
-
-♬-𝚂𝙲𝙿
-
-☆-𝙲𝚞𝚙𝚑𝚎𝚊𝚍
-
-
 ![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
 
 ![bouncing-dancing](https://github.com/user-attachments/assets/f70f4166-b649-4cf2-a110-e5f4fdce6f1b)
