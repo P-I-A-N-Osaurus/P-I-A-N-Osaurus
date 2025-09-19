@@ -12,7 +12,7 @@ R𝙴𝙰𝙳 𝙼𝚈 𝐑𝐄𝐍𝐓𝐑𝐘, 𝐂𝐀𝐀𝐑𝐃 𝐀𝐍�
 
 ₊˚ˑ༄ (https://rentry.co/bonkbon - 𝚙𝚌 𝚟𝚎𝚛𝚜𝚒𝚘𝚗)
 
-₊˚ˑ༄ ( -𝚖𝚘𝚋𝚒𝚕𝚎 𝚟𝚎𝚛𝚜𝚒𝚘𝚗) 
+₊˚ˑ༄ https://elwoodz.straw.page
 ![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&cover_image=false&theme=novatorem&show_offline=false&background_color=801132&interchange=true&bar_color=ffb5b5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&redirect=true)
