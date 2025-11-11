@@ -2,7 +2,7 @@
 
 ![0d10ba35](https://github.com/user-attachments/assets/569a3543-643f-4828-89c8-11f497f5f26b)
 
-♬- 𝙷𝙴𝚈𝙾𝙾𝙾!!! 𝚈𝙾𝚄 𝙲𝙰𝙽 𝙲𝙰𝙻𝙻 𝙼𝙴 𝙰𝙶𝙴𝙽𝚃 𝙿𝙸𝙽𝙺 𝙾𝚁 𝙴𝙻𝚆𝙾𝙾𝙳, I LIKE TO DRAW AND MAKE CHARACTER DESIGNS!!
+> ♬- 𝙷𝙴𝚈𝙾𝙾𝙾!!! 𝚈𝙾𝚄 𝙲𝙰𝙽 𝙲𝙰𝙻𝙻 𝙼𝙴 𝙰𝙶𝙴𝙽𝚃 𝙿𝙸𝙽𝙺 𝙾𝚁 𝙴𝙻𝚆𝙾𝙾𝙳, I LIKE TO DRAW AND MAKE CHARACTER DESIGNS!!
 
 𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜: 𝙷𝚎/𝚑𝚒𝚖 , 𝚃𝚑𝚎𝚢/𝚝𝚑𝚎𝚖
 
