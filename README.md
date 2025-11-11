@@ -6,13 +6,8 @@
 
 𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜: 𝙷𝚎/𝚑𝚒𝚖 , 𝚃𝚑𝚎𝚢/𝚝𝚑𝚎𝚖
 
-R𝙴𝙰𝙳 𝙼𝚈 𝐑𝐄𝐍𝐓𝐑𝐘, 𝐂𝐀𝐀𝐑𝐃 𝐀𝐍𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝙵𝙾𝚁 𝙼𝙾𝚁𝙴 𝙸𝙽𝙵𝙾 (..◜ᴗ◝..)
+R𝙴𝙰𝙳 𝙼𝚈 [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/bonkbon), [𝐂𝐀𝐀𝐑𝐃](https://papyrusss.carrd.co/) 𝐀𝐍𝐃 [𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄](https://elwoodz.straw.page/) 𝙵𝙾𝚁 𝙼𝙾𝚁𝙴 𝙸𝙽𝙵𝙾 (..◜ᴗ◝..)
 
-₊˚ˑ༄ https://papyrusss.carrd.co/
-
-₊˚ˑ༄ (https://rentry.co/bonkbon - 𝚙𝚌 𝚟𝚎𝚛𝚜𝚒𝚘𝚗)
-
-₊˚ˑ༄ https://elwoodz.straw.page/
 ![ceeed9db](https://github.com/user-attachments/assets/c6e46562-fb8f-4c22-a4fd-4e2ee9978891)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&cover_image=false&theme=novatorem&show_offline=false&background_color=801132&interchange=true&bar_color=ffb5b5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=314v3h63yq4ubhatfq4544ftvuze&redirect=true)
